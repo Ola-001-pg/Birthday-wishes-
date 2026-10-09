@@ -1,12 +1,10 @@
 <!DOCTYPE html>
 <html>
 <head>
-</head>………… wishes🥂🧁</>
+</head></>
 </head>
 <body>
-…………
-  <h1>Happy Birthday❤️
-    ….To The Best
+  <h1>    ….To The Best
 ….
   Boyfriend Ever!🎉</h1>
 </body>
