@@ -1,7 +1,7 @@
 <h1>    ….To The Best
 ….
   Boyfriend Ever!🎉</h1>
-</body>
+
 <img width="1080" height="608" alt="c87978dc-62ae-4973-be73-1beb75474054" src="https://github.com/user-attachments/assets/87b2f88c-988f-4058-bdc3-146af760e4e9" />
 
 My baby, first of all, I want to sincerely apologise for not wishing you a Happy Boyfriend’s Day earlier. I know I didn’t wish you when I was supposed to, and I know it hurt you. Especially because you kept bringing it up, I could tell how much it meant to you, and it honestly makes me sad knowing that I made you feel that way🥹🩷
@@ -25,4 +25,8 @@ And please, my love, don’t ever think that because I missed one special day, y
 Happy Belated Boyfriend’s Day,my baby, my Ife,my favourite human. You deserve all the love in this world, and I’m so happy I get to love you. I love you endlessly, my baby. Today, tomorrow, and always😝🩷🙈
 
 Your baby loves you so much(Kodi)💕
-<img width="3264" height="408" alt="pixellab_2026-10-09T09-31-54Z" src="https://github.com/user-attachments/assets/d839f4db-d770-44dd-9ffc-93ac0999e3be" />
+
+
+
+
+<img width="3264" height="408" alt="pixellab_2026-10-09T11-01-32Z" src="https://github.com/user-attachments/assets/b97eb550-105e-400d-84e3-31bd8c91e657" />
